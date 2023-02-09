@@ -8,5 +8,9 @@ On peut rever...
 
 cela dépendra de l'avancée des travaux
 Suspense...
+On verra
 
-je teste pour voir
+valérie dit : Plus trop inspiree
+On est arrivé au bout de l'exercice
+
+
