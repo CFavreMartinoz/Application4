@@ -1,0 +1,1 @@
+il faut maintenant une phrase sans ponctuation pour tester la collaboration entre developpeurs
