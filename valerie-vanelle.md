@@ -13,6 +13,8 @@ On verra
 valérie dit : Plus trop inspiree
 On est arrivé au bout de l'exercice
 
+On verra
 ok
 
 Quelles sont les horaires ?
+
