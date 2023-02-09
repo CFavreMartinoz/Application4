@@ -8,10 +8,11 @@ On peut rever...
 
 cela dépendra de l'avancée des travaux
 Suspense...
-
-Plus trop inspiree
+On verra
+valérie dit : Plus trop inspiree
+On est arrivé au bout de l'exercice
 
 On verra
 ok
 
-La, je suis dans la branche !gjhfgJKF
+La, je suis dans la branche !
