@@ -9,10 +9,12 @@ On peut rever...
 cela dépendra de l'avancée des travaux
 Suspense...
 On verra
+
 valérie dit : Plus trop inspiree
 On est arrivé au bout de l'exercice
 
 On verra
 ok
 
-La, je suis dans la branche !
+Quelles sont les horaires ?
+
